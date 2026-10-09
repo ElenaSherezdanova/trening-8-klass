@@ -1,0 +1,1 @@
+# trening-8-klass
